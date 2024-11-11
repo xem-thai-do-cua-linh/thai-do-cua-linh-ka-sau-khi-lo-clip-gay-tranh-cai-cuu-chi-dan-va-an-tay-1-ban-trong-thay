@@ -4,10 +4,15 @@
 Thái độ của Linh Ka sau khi lộ clip gây tranh cãi, ‘cứu’ Chi Dân và An Tây 1 bàn trông thấy?
 Tác giả: An An
 
-Theo dõi Techz trên
+📺📱👉◄◄🔴 https://tinyurl.com/3namhbm4
 
-Thái độ của Linh Ka sau khi lộ clip gây tranh cãi, ‘cứu’ Chi Dân và An Tây 1 bàn trông thấy?
-Nhiều cư dân mạng đùa giỡn rằng Linh Ka đã “cứu” Chi Dân, An Tây thoát khỏi vòng vây của dư luận. Thái độ của cô nàng sau khi đoạn clip gây tranh cãi xuất hiện khiến mọi người thêm hoang mang.
+📺📱👉◄◄🔴 https://tinyurl.com/3namhbm4
+
+📺📱👉◄◄🔴 https://tinyurl.com/3namhbm4
+
+📺📱👉◄◄🔴 https://tinyurl.com/3namhbm4
+
+📺📱👉◄◄🔴 https://tinyurl.com/3namhbm4
 
 
 Mạng xã hội đang xôn xao vì câu chuyện Linh Ka đột ngột khóa trang cá nhân. Nhiều khán giả hoang mang không hiểu có chuyện gì xảy ra. Cái tên Linh Ka được nhắc đến nhiều trên Facebook chẳng thua gì ca sĩ Chi Dân và người mẫu An Tây. Theo tìm hiểu, nguồn cơn sự việc này xuất phát từ một đoạn clip do chính Linh Ka đăng tải trên trang cá nhân.
